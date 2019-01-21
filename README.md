@@ -16,11 +16,9 @@
                                                                                                                                  
                                                                                                                                  
                                                                                                                                  
-                                                                                         Facebook: ESociety
-                                                                                                              
+                                                                                         Facebook: ESociety                                                                                                              
                                                                                          GitHub: eSociety97
-                                                                                                              
-                                                                
+                                                                                                                                                                        
                                                                 
                                                                                                               
                                                   #NuncaDejenDeCrear                                                      
